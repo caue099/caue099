@@ -1,6 +1,6 @@
 **#minha pessoa**
 - 👋 Hi, I am @caue099
-- 👀 I’m interested in programar :)
+- 👀 I’m interested in pablo vittar :)
 - 🌱 I’m currently learning programação por diferentes linguagens
 - 📫 How to reach me, pelo meu email o.caue@escola.pr.gov.br
 
